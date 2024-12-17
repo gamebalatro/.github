@@ -56,6 +56,7 @@ Balatro introduces a range of Joker cards, each representing unique abilities th
 ## Balatro Mod APK for Android  
 For a mobile experience, the **Balatro Mod APK** offers features like unlimited currency and score, enhancing gameplay convenience. You can download it from the trusted source:  
 [Balatro Mod APK](https://www.dogapk.com/paid/balatro-mod-apk-0-4-unlimited-currency-score/).
+
 ![1](https://play-lh.googleusercontent.com/DGylQ-S9bvV5adgteR603GjgEMYPgqJTKBsSCwJb0-ASQplLxjOvKEqOzz_7adJHufs=w526-h296-rw)
 
 ---
